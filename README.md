@@ -10,4 +10,4 @@ Meu nome é Nicolly Carmo
 
 nicolly.camo@gmail.com
 
-![](https://media1.tenor.com/m/rIjVwKtDtLUAAAAd/corinthians-sccp.gif)
+![sccp](https://media1.tenor.com/m/rIjVwKtDtLUAAAAd/corinthians-sccp.gif)
